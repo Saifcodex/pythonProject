@@ -1,0 +1,1 @@
+Mark Zuckerberg is an American businessman and philanthropist who co-founded Facebook in 2004
